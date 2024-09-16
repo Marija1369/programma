@@ -1,0 +1,2 @@
+# programma
+mācība
